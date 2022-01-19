@@ -1,3 +1,4 @@
 # first-repo
-gangsta shit ykwis
+twa e za 6tica
+
 
